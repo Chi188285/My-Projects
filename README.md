@@ -1,0 +1,1 @@
+This page contacts my major projects and i will be updating them as time goes on 
